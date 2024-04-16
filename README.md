@@ -1,0 +1,1 @@
+# Lovisa-Necklace-Component
